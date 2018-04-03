@@ -31,7 +31,7 @@ We are a well-funded, early stage fintech startup looking for interns to help us
 -	Work and play hard at our office, located minutes from Estação Faria Lima.
 
 <p align="center">
-<i>Interested? Send us a message at <b>jobs@rapidoo.com.br</b></i>
+<i>Interested? Send us your CV / LinkedIn profile at <b>jobs@rapidoo.com.br</b></i>
 </p>
 
 <p align="center">
